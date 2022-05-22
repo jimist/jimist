@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @jimist
+- 👀 I’m interested in web.
+- 🌱 I’m currently learning some stuff.
+- 📫 How to reach me me@jimist.com
